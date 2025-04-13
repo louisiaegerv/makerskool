@@ -55,4 +55,36 @@
 
 ---
 
+## Top 10 Quotes from the Community Call 🗣️✨
+
+1. **"Just better to get up and running, get started—you can worry about editing and optimizing and making everything perfect later."** (0:50) 🚦
+
+2. **"If you're not already making money, don't make things any more complex than they need to be. Sell the service first."** (3:44) 🙌
+
+3. **"The entire point of this program is to bring you back to these essential daily activities that you need to do in order to get real customers."** (6:06) 🔄
+
+4. **"There’s no easier route to your first $50,000 online than services."** (10:52) 💰
+
+5. **"Don’t build SaaS before you’ve worked with real customers and solved 90% of the problems."** (4:44) 🚧
+
+6. **"Detailed documentation alongside delivery inoculates you against most maintenance headaches."** (25:24) 📑
+
+7. **"You don’t actually need YouTube or TikTok—you can scale entirely through outbound. But content brings bigger deals over time."** (22:09) 🎯
+
+8. **"I price projects primarily based on the value I believe it’s going to deliver to the end customer—not on time spent."** (50:27) 💡
+
+9. **"Most of the value in a call is just being authentically honest, even admitting what you don’t know."** (34:26) 🤝
+
+10. **"Cold email right now is stupidly effective… but it won’t last forever. Take advantage of this opportunity while you can."** (1:21:16) ⏳
+
+---
+
+*Bonus wisdom*:  
+**"Retainers unlock the massive leverage in this business—don’t just work hourly, push for monthly recurring revenue!"** (2:01:57) 🔑
+
+---
+
+Feel free to share or pin these for the community! 🚀
+---
+
 Thank you for engaging with the community! 🙌 Keep taking action, building momentum, and supporting each other! 🚀
